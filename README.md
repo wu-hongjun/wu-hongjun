@@ -1,6 +1,6 @@
 <p>
   <samp>
-    <br>😄Hi there! I'm Hongjun Wu, student at University of Washington!<br>
+    <br>😄 Hi there! I'm Hongjun Wu, student at University of Washington!<br>
     <br>🔭 I’m currently working on AnimKit, an open-source Maya toolkit written in Python.<br>
     <br>🌱 I’m currently learning animation, Blender, OpenCV, and Unreal Engine!<br>
     <br>😆 I’m currently teaching as a teaching assistant for intro to machine learning!<br>
