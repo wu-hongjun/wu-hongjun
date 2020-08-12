@@ -7,4 +7,5 @@
     <br>⚡ Fun fact: I got rejected by the UW CSE department five times in a role :))) I don't care anymore.<br>
   </samp>
 </p>
- <img src="https://github-readme-stats.vercel.app/api?username=errrneist&show_icons=true">
+
+<!-- <img src="https://github-readme-stats.vercel.app/api?username=errrneist&show_icons=true"> -->
