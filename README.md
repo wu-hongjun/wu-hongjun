@@ -3,7 +3,8 @@
     <br>
     <br>😄 Hi there! I'm Hongjun Wu, a student at University of Washington ヽ(✿ﾟ▽ﾟ)ノ!<br>
     <br>🌱 I’m interested in machine learning, animation, and a lot of other things! <br>
-    <br>😉 I also work on many different things on the side, like Virtual Reality, Game Development, Computer Vision, Computer Aided Engineering, etc.<br>
+    <br>😉 I also work on many very different things on the side!<br>
+    <br>😆 Virtual Reality, Game Development, Computer Vision, Computer Aided Engineering, etc.<br>
     <br>💬 Ask me just about anything you can think of!<br>
   </samp>
   <br>
