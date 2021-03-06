@@ -13,5 +13,3 @@
   </samp>
   <br>
 </p>
-
-<!-- <img src="https://github-readme-stats.vercel.app/api?username=errrneist&show_icons=true"> -->
