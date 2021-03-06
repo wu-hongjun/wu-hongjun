@@ -2,6 +2,7 @@
   <samp>
     <br>
     <br>😄 Hi there! I'm Hongjun Wu, a 3D technical artist and ML researcher!<br>
+    <br>😍 Dog + Cat person! Love hamster and red panda too!! Actually anything cute can steal my heart!<br>
     <br>😉 I also work on many very (like...vary!) different things on the side!<br>
     <br>😆 Proficent in overcooking(?), causing fire alarm(??), and commit unmergable broken codes(???).<br>
     <br>💬 Ask me just about anything you can think of!<br>
