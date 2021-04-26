@@ -5,7 +5,7 @@
 
 😉 - I also work on many very (like...vary!) different things on the side!  
 
-😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).  
+😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
 💬 - Ask me just about anything you can think of!  
 
