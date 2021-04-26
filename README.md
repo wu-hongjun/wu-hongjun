@@ -7,6 +7,8 @@
     <br>😆 Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).<br>
     <br>💬 Ask me just about anything you can think of!<br>
     <br>
+    <br>My Journey: 🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne 📍☕️Seattle 🍟New York City<br>
+    <br>
     <br>🟦 About Me: <a href="https://hongjunwu.com/">hongjunwu.com</a> (Main page is not done yet so you'll get redirected to my academic page)<br>
     <br>🟨 Instagram: <a href="https://www.instagram.com/errrneist/">@errrneist</a> | <a href="https://www.instagram.com/errrneist_art/">@errrneist_art</a> <br>
     <br>🟪 Art Station: <a href="https://hongjunwu.artstation.com/">@hongjunwu</a> <br>
