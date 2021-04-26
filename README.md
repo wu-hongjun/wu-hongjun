@@ -2,7 +2,7 @@
   <samp>
     <br>
     <br>😄 Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech!<br>
-    <br>😍 🐶 + 🐱 + 🐹 + 🐼 person! Actually anything cute can steal my heart!<br>
+    <br>😍 🐶+🐱+🐹+🐼 person! Actually anything cute can steal my heart!<br>
     <br>😉 I also work on many very (like...vary!) different things on the side!<br>
     <br>😆 Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).<br>
     <br>💬 Ask me just about anything you can think of!<br>
