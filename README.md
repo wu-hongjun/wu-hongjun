@@ -1,7 +1,7 @@
 <p>
   <samp>
     <br>
-    <br>😄 Hi there! I'm Hongjun Wu, a technical artist and ML researcher at Cornell Tech!<br>
+    <br>😄 Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech!<br>
     <br>😍 Dog + Cat person! Love hamster and red panda too!! Actually anything cute can steal my heart!<br>
     <br>😉 I also work on many very (like...vary!) different things on the side!<br>
     <br>😆 Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).<br>
