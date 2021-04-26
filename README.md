@@ -1,17 +1,14 @@
-<p>
-  <samp>
-    <br>
-    <br>😄 Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech!<br>
-    <br>😍 🐶+🐱+🐹+🐼 person! Actually anything cute can steal my heart!<br>
-    <br>😉 I also work on many very (like...vary!) different things on the side!<br>
-    <br>😆 Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).<br>
-    <br>💬 Ask me just about anything you can think of!<br>
-    <br>
-    <br>My Journey: 🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne 📍☕️Seattle 🍟New York City<br>
-    <br>
-    <br>🟦 About Me: <a href="https://hongjunwu.com/">hongjunwu.com</a> (Main page is not done yet so you'll get redirected to my academic page)<br>
-    <br>🟨 Instagram: <a href="https://www.instagram.com/errrneist/">@errrneist</a> | <a href="https://www.instagram.com/errrneist_art/">@errrneist_art</a> <br>
-    <br>🟪 Art Station: <a href="https://hongjunwu.artstation.com/">@hongjunwu</a> <br>
-  </samp>
-  <br>
-</p>
+
+
+😄 Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech!  
+😍 🐶+🐱+🐹+🐼 person! Actually anything cute can steal my heart!  
+😉 I also work on many very (like...vary!) different things on the side!  
+😆 Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable broken conflicts(???).  
+💬 Ask me just about anything you can think of!  
+
+My Journey:   
+🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne 📍☕️Seattle 🍟New York City
+
+🟦 About Me: [hongjunwu.com](https://hongjunwu.com/) (Main page is not done yet so you'll get redirected to my academic page)
+🟨 Instagram: [@errrneist](https://www.instagram.com/errrneist/) | [@errrneist_art](https://www.instagram.com/errrneist_art/)
+🟪 Art Station: [@hongjunwu](https://hongjunwu.artstation.com/)
