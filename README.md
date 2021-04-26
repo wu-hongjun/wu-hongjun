@@ -13,7 +13,7 @@
 🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne 📍☕️Seattle 🍟New York City
 
 ### Links
-🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) (Main page is not done yet so you'll get redirected to my academic page).   
+🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) 
 
 🟨  - Instagram: [@errrneist](https://www.instagram.com/errrneist/) & [@errrneist_art](https://www.instagram.com/errrneist_art/).   
 
