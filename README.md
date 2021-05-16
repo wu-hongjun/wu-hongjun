@@ -9,6 +9,8 @@
 
 🥰 - Favorite musician: Leslie Cheung & Danny Chan & Jay Chou & JJ Lin & Eason Chan
 
+👾 - Favorite Game: Overwatch - BLIZZARD HIRE ME TO WORK ON OVERWATCH PLZ
+
 💬 - Ask me just about anything you can think of!  
 
 ### My Journey  
