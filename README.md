@@ -7,7 +7,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Favorite musician: Leslie Cheung & Jay Chou & JJ Lin & Eason Chan
+🥰 - Favorite musician: Leslie Cheung & Danny Chan & Jay Chou & JJ Lin & Eason Chan
 
 💬 - Ask me just about anything you can think of!  
 
