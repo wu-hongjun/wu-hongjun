@@ -7,7 +7,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Favorite musician: Leslie Cheung & Jay Zhou  | Favoriate Artist: Rembrandt!
+🥰 - Favorite musician: Leslie Cheung & Jay Chou & JJ Lin
 
 💬 - Ask me just about anything you can think of!  
 
