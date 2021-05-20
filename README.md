@@ -3,8 +3,6 @@
 
 😍 - 🐶+🐱+🐹+🐼 person! Actually anything cute can steal my heart!  
 
-😉 - I also work on many very (like...vary!) different things on the side!  
-
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
 🥰 - Favorite musician: Leslie Cheung & Danny Chan & Jay Chou & JJ Lin & Eason Chan
