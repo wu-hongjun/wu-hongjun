@@ -12,7 +12,7 @@
 💬 - Ask me just about anything you can think of!  
 
 ### My Journey  
-🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne 📍☕️Seattle 🍟New York City
+🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne ☕️Seattle 📍New York City
 
 ### Links
 🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) 
