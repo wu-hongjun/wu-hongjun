@@ -5,9 +5,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Favorite musician: Leslie Cheung & Danny Chan & Jay Chou & JJ Lin & Eason Chan
-
-👾 - Favorite Game: Overwatch - BLIZZARD HIRE ME TO WORK ON OVERWATCH PLZ
+🥰 - Canton Pop & Overwatch enthusaist!
 
 💬 - Ask me just about anything you can think of!  
 
