@@ -1,5 +1,5 @@
 ### About Me
-😄 - Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech!  
+😄 - Hi there! I'm Hongjun Wu, a technical artist and researcher at Cornell Tech! (🏳️‍🌈safe!)
 
 😍 - 🐶+🐱+🐹+🐼 person! Actually anything cute can steal my heart!  
 
@@ -8,9 +8,6 @@
 🥰 - Canton Pop & Overwatch enthusaist!
 
 💬 - Ask me just about anything you can think of!  
-
-### My Journey  
-🥘Zhu Hai 🍔Los Angeles 🍣Sendai 🥪London 🥗Athens 🍨Nafplion 🍕Rome 🍰Lausanne ☕️Seattle 📍New York City
 
 ### Links
 🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) 
