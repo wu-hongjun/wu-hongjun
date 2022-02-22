@@ -7,6 +7,8 @@
 
 🥰 - Canton Pop & Overwatch enthusaist!
 
+🤤 - [LUMITY](https://shipping.fandom.com/wiki/Lumity)
+
 💬 - Ask me just about anything you can think of!  
 
 ### Links
