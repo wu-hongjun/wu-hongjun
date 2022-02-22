@@ -5,7 +5,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Canton Pop & Overwatch enthusaist!
+🥰 - Canton Pop enthusaist & ex Overwatch master rank player!
 
 🤤 - [LUMITY](https://shipping.fandom.com/wiki/Lumity)
 
