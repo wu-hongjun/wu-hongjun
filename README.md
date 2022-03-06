@@ -12,6 +12,6 @@
 ### Links
 🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) 
 
-🟨  - Instagram: [@wu_hj](https://www.instagram.com/wu_hj)(Personal) & [@whj.art](https://www.instagram.com/whj.art/).   
+🟨  - Instagram: [@wu_hj](https://www.instagram.com/wu_hj) (Personal) & [@whj.art](https://www.instagram.com/whj.art/).   
 
 🟪  - Art Station: [@wuhongjun](https://wuhongjun.artstation.com/).   
