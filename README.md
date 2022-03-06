@@ -1,7 +1,7 @@
 ### About Me
 😄 - Hi there! I'm Hongjun Wu (He/They), a technical artist and researcher at Cornell Tech! (🏳️‍🌈safe!)
 
-😍 - 🐶+🐱+🐹+🐼 person & [LUMITY](https://shipping.fandom.com/wiki/Lumity) 
+😍 - 🐶+🐱+🐹+🐼 person & [Lumity](https://shipping.fandom.com/wiki/Lumity) 
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
