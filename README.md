@@ -5,7 +5,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Canton Pop enthusaist & ex Overwatch master rank player!
+🥰 - Canton pop enthusaist & ex Overwatch master rank player!
 
 💬 - Ask me just about anything you can think of!  
 
