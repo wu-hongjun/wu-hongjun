@@ -14,4 +14,6 @@
 
 🟨  - Instagram: [@whj.art](https://www.instagram.com/whj.art/).   
 
-🟪  - Art Station: [@wuhongjun](https://wuhongjun.artstation.com/).   
+🟪  - Art Station: [@wuhongjun](https://wuhongjun.artstation.com/). 
+
+🟧  - Contact: [Message Portal](https://i.hongjunwu.com/contact/)
