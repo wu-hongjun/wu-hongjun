@@ -16,4 +16,4 @@
 
 🟪  - Art Station: [@wuhongjun](https://wuhongjun.artstation.com/). 
 
-🟧  - Contact: [Message Portal](https://i.hongjunwu.com/contact/)
+🟧  - Contact: [Shoot me a message!](https://i.hongjunwu.com/contact/)
