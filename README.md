@@ -1,7 +1,7 @@
 ### About
 😄 - Hi there! I'm Hongjun Wu (he/him), a technical artist and researcher at Cornell Tech!
 
-😍 - I am a 🐶+🐱+🐹+🐼 person :) 
+😍 - My Cat: [river.ps](https://www.instagram.com/river.ps/) :) 
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
