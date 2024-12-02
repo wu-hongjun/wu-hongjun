@@ -1,5 +1,5 @@
 ### About
-😄 - Hi there! I'm Hongjun Wu (he/him), a technical artist and researcher at Cornell Tech!
+😄 - Hi there! I'm Hongjun Wu (he/they), a technical artist and AI researcher from Cornell Tech!
 
 😍 - My Cat: [river.ps](https://www.instagram.com/river.ps/) :) 
 
