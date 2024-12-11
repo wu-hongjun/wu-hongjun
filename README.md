@@ -7,4 +7,4 @@
 
 🥰 - Canton pop enthusaist & Overwatch ex-master rank player!
 
-💬 - [Ask me]((https://me.hongjunwu.com/contact/)) just about anything you can think of!  
+💬 - [Ask me](https://me.hongjunwu.com/contact/) just about anything you can think of!  
