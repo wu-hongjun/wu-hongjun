@@ -7,13 +7,4 @@
 
 🥰 - Canton pop enthusaist & Overwatch ex-master rank player!
 
-💬 - Ask me just about anything you can think of!  
-
-### Links
-🟦  - About Me: [hongjunwu.com](https://hongjunwu.com/) 
-
-🟨  - Instagram: [@whj.art](https://www.instagram.com/whj.art/).   
-
-🟪  - Art Station: [@wuhongjun](https://wuhongjun.artstation.com/). 
-
-🟧  - Contact: [Shoot me a message!](https://me.hongjunwu.com/contact/)
+💬 - [Ask me]((https://me.hongjunwu.com/contact/)) just about anything you can think of!  
