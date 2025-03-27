@@ -3,7 +3,7 @@
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
-🥰 - Canton pop enthusaist & Overwatch ex-master rank player!
+🥰 - Coolest project I've worked on so far - Dreamhaven's [Wildgate](https://playwildgate.com)!
 
 😍 - My Cat: [river.ps](https://www.instagram.com/river.ps/) :) 
 
