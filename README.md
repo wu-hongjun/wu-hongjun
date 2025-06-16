@@ -1,5 +1,5 @@
 ### About
-😄 - Hi there! I'm Hongjun Wu (he/they), a technical artist and AI researcher from Cornell Tech!
+😄 - Hi there! I'm Hongjun Wu (he/they), a technical artist and AI researcher! (In plain language, I make robots and video games)
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
