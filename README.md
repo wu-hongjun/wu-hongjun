@@ -1,5 +1,5 @@
 ### About
-😄 - Hi there! I'm Hongjun Wu (he/they), I make robots and video games!
+😄 - Hi there! I'm [Hongjun Wu](https://hongjunwu.com) (he/they), I make robots and video games!
 
 😆 - Proficent in oversleeping(?), causing fire alarm(??), and commit unmergable conflicts(???).  
 
